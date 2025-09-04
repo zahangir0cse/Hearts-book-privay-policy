@@ -1,5 +1,5 @@
-Privacy Policy  
-----------------
+Privacy Policy  & Support
+--------------------------
 
 ### Introduction  
 Our privacy policy will help you understand what information we collect at *Heart's book*, how *Heart's book* uses it, and what choices you have.
